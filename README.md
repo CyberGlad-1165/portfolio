@@ -1,2 +1,2 @@
-# https://resume-royal-rampage.lovable.app
+# https://cybercity.lovable.app
 Cyber city portfolio
